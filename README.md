@@ -1,4 +1,7 @@
 # @jjkoh95
 Professional daydreamer, achieved nothing worth of note so far
 
-Find me [here](https://jjkoh.com)
+- https://jjkoh.com
+- https://about.sonderbase.com
+- https://sonderbase.com
+- https://wonderplan.ai
